@@ -18,4 +18,4 @@
 最后提醒：本站所有内容仅供个人浏览使用，禁止非法传播与下载。请遵守所在地区的法律法规，理性使用本平台。我们也将持续优化内容结构与推荐机制，为广大用户提供更丰富、更安全的日本AV免费资源体验。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/dd64069/22200 ）</span>
